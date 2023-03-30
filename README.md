@@ -5,4 +5,4 @@ The backgrounds were not made by me but merely collected from various corners of
 
 Spice up your WFH meetings :)
 
-I did not create nor do I have the rights of these backgrounds. I merely collect them off here and there from the deepest abysses of the internet.
+I did not create nor do I have the rights of these backgrounds. I merely collect them here and there from the deepest abysses of the internet.
